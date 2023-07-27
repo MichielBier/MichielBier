@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MichielBier aka 🍺🗡️
 - 👀 I’m interested in 🦹‍♂️
 - 🌱 I’m currently learning 🖖🏻☮️
-- 💞️ I’m looking to collaborate on 🌎 - CRTL
+- 💞️ I’m looking to collaborate on 🌎 - CTRL
 - 📫 How to reach me 🚬📶
 
 <!---
